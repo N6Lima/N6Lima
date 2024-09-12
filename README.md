@@ -12,4 +12,5 @@ catarina.lima@escola.pr.gov.br
 
 @ferrazlimacatarina (instagram)
 
- ![](https://tenor.com/pt-BR/view/cat-thumbs-up-gif-8855652465897788240)
+
+https://tenor.com/pt-BR/view/cat-thumbs-up-gif-8855652465897788240
