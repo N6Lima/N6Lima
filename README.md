@@ -9,4 +9,7 @@ Meu nome é Catarina Ferraz Lima
 ## você podeentrar em contato comigo📫 
 
 catarina.lima@escola.pr.gov.br
+
 @ferrazlimacatarina (instagram)
+
+ ![](https://tenor.com/pt-BR/view/cat-thumbs-up-gif-8855652465897788240)
